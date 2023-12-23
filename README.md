@@ -6,3 +6,4 @@
 4. **Igualdad entre hombres y mujeres en la empresa** (30 h) - Fundación Integra Digital
 5. **Igualdad retributiva y auditoría salarial** (30 h) - Fundación Integra Digital
 6. **Prevención de Riesgos Laborales PRL** (50 h) - Índice Consultoría y formación
+7. **Gestión de nóminas y seguridad social** (20 h) - Fundación Integra Digital
