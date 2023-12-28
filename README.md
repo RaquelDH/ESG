@@ -1,4 +1,4 @@
-### 2022-2024: Formación en ESG, RSC & international trade (más de 1000 horas)
+### 2022-2024: Formación en ESG, RSC & international trade (más de 1100 horas)
 
 1. **Consultoría ambiental** (200 h) - Sergesa Expertos en Formación
 2. **Sostenibilidad ambiental** (210 h) - Centro de Estudios Kuma
