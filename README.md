@@ -1,4 +1,4 @@
-### 2022-2024: Formación en Business Management & compliance (más de 1100 horas)
+### 2022-2024: Formación en Compliance & International Trade (más de 1100 horas)
 
 1. **Consultoría ambiental** (200 h) - Sergesa Expertos en Formación
 2. **Sostenibilidad ambiental** (210 h) - Centro de Estudios Kuma
