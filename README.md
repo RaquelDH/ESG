@@ -1,4 +1,4 @@
-### 2022-2024: Formación en Compliance & International Trade (más de 1200 horas)
+### 2022-2024: Formación en Compliance & International Trade (más de 1400 horas)
 
 1. **Consultoría ambiental** (200 h) - Sergesa Expertos en Formación
 2. **Sostenibilidad ambiental** (210 h) - Centro de Estudios Kuma
@@ -17,3 +17,4 @@
 15. **La empresa en la economía digital global** (15 h) - Fundación Rafael del Pino/ ICEX- CECO España Exportación e Inversiones
 16. **Sostenibilidad empresarial y ODS** - Fundación Rafael del Pino
 17. **Planificación de la internacionalización de empresas** (200 h) - Mainjobs Innovación tecnológica y educativa
+18. **Gestión de RRHH: Optimización y organización** (200 h) - Fundación Tajamar
